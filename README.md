@@ -1,4 +1,2 @@
-### Hi there, I'm Anand 👋
-
-##  Developer & Designer... !
+Anand S
 
